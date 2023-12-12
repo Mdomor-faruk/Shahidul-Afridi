@@ -10,7 +10,7 @@ Introduction Of Shahidul Afridi:
 Hey, I am Shahidul Afridi. CEO and Founder At Markertion. A Full Stack Digital Marketer. Specialist in Search Engine Optimization (SEO), Social Media Marketing, And Web Designer.
 
 
-“Shahidul Afridi” is a full-stack digital marketer and Entrepreneur. He was born on 22nd July 2003 in Manikganj, Bangladesh. He is a professional digital marketer and search engine optimization expert working successfully with various leading companies worldwide for a long time. Apart from companies or agencies, Shahidul Afridi has been working in various freelancer marketplaces around the world since 2018. He is still working on various marketplaces and Serving as the CEO and Founder of Markertion (Creative Digital Marketing Agency).
+“Shahidul Afridi” is a full-stack digital marketer and Entrepreneur. He was born on 22nd July 2003 in Manikganj, Bangladesh. He is a professional digital marketer and search engine optimization expert working successfully with various leading companies worldwide for a long time. Apart from companies or agencies, Shahidul Afridi has been working in various freelancer marketplaces around the world since 2018. He is still working on various marketplaces and Serving as the CEO and Founder of Markertion (Creative Digital Marketing Agency). https://shahidulafridi.com/ 
 
 Journey Of full-stack digital marketing:
 Journey Of full-stack digital marketing
